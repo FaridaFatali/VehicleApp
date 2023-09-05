@@ -3,4 +3,4 @@
 
 ##
 
-![Uploading 2023-mitsubishi-outlander-sport-automatic-high-beam.gif…]()
+![](https://i0.wp.com/www.car-revs-daily.com/wp-content/uploads/2014/03/HYUNDAI-Coupe-Designs-HND-9-animated-gif-header.gif)
